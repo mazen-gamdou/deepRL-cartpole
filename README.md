@@ -5,4 +5,6 @@ Hello, I have added the solution for tasks 1 and 2. I am sorry that I was not ab
 
 Availability: any time during the week of March 27, 2023.
 
+Email: mazengamdou1@gmail.com
+
 Thank you for your consideration.
